@@ -22,6 +22,7 @@ _italic text_
 [Minions Banana Song](https://youtu.be/-9EHdp1ynUU)
 
 ![](https://c.tenor.com/PS12pxvy4U8AAAAd/its-so-fluffy-margo.gif)
+![](https://www.icegif.com/wp-content/uploads/minion-ehh-no-icegif.gif)
 
 |Ice Cream  |Monster   |Greek Gods   |   |   |
 |---|---|---|---|---|
